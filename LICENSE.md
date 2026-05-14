@@ -1,4 +1,4 @@
-
+Inteligente Marvel Rivals traps ESP é o melhor Marvel Rivals traps ESP com mira silenciosa e radar. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
